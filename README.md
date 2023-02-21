@@ -4,16 +4,6 @@ The inspiration for this document came from my own manager 4 years ago. I found 
 
 ## 👋 Hi, I’m Ivana
 
-
-I’m 38 years old and I live in Croatia with my husband, daughter, a big cat and a small dog 😊. 
-
-<img src="https://uploads-ssl.webflow.com/5f104abb3aa5a96156dbb059/62209e74f5e70051da500f9c_IMG_0583.jpg" width="300" >
-
-<img src="https://uploads-ssl.webflow.com/5f104abb3aa5a96156dbb059/62209fd9dc58a3c788b8b8f4_IMG_9047.jpg" width="300" >
-
-<img src="https://uploads-ssl.webflow.com/5f104abb3aa5a96156dbb059/6220a45207a70caa3cad89e6_IMG_20140922_061549.jpg" width="300" >
-
-
 In my spare time, I love dancing 💃  (just putting headphones on, loud music and dancing around the house 😅), meditating, reflecting and journaling 🧘‍♀️ (I’m very passionate about personal development and spirituality), running, going on long walks, reading or just enjoying a good Netflix show with my family 🍿.
 
 I am an ambivert - meaning a mix of introvert and extrovert. I enjoy working in teams, hanging out with people, socializing, but I also enjoy reflecting, spending time alone and working independently. It all depends on the situation and context.
