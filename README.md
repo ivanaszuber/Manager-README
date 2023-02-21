@@ -4,7 +4,7 @@ The inspiration for this document came from my own manager 4 years ago. I found 
 
 ## 👋 Hi, I’m Ivana
 
-In my spare time, I love dancing 💃  (just putting headphones on, loud music and dancing around the house 😅), meditating, reflecting and journaling 🧘‍♀️ (I’m very passionate about personal development and spirituality), running, going on long walks, reading or just enjoying a good Netflix show with my family 🍿.
+In my spare time, I love dancing 💃  (just putting headphones on, loud music and dancing around the house 😅), meditating, reflecting and journaling 🧘‍♀️ (I’m very passionate about personal development and spirituality), running, going on long walks, reading or just enjoying a good Netflix show 🍿.
 
 I am an ambivert - meaning a mix of introvert and extrovert. I enjoy working in teams, hanging out with people, socializing, but I also enjoy reflecting, spending time alone and working independently. It all depends on the situation and context.
 
